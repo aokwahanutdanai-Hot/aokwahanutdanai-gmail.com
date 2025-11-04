@@ -1,1 +1,1 @@
-# aokwahanutdanai-gmail.com
+# aokwahanutdanai-com
